@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @klpranathi2
+- 👀 I’m a beginner, i like python and i'm curious to learn more about ML
+- 🌱 Nature Enthusiast
+- 📫 To reach me @pranathi.music on Instagram
